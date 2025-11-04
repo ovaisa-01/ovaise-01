@@ -1,5 +1,5 @@
 # 🧠 Ovaisa KT  
-### Beginner AI/ML Learner | Aspiring MBZUAI Student  
+### Beginner AI/ML Learner
 
 📍 *Based in Malaysia*  
 📧 **ovaisabloom@gmail.com**  
